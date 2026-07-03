@@ -12,3 +12,4 @@ BASE is good
 BASE is BASE
 BASE is BEST
 BASE now and FOREVER
+BASE is COINBASE
