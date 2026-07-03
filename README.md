@@ -9,3 +9,4 @@ perbuatan tercela yg tidak baik
 jika ada cinta sejati
 mawar melati semuanya indah
 BASE is good
+BASE is BASE
