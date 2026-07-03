@@ -11,3 +11,4 @@ mawar melati semuanya indah
 BASE is good
 BASE is BASE
 BASE is BEST
+BASE now and FOREVER
